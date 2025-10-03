@@ -1,6 +1,6 @@
 # merge-conflict-example-2
-adhsjafjaksfh wa hawjfhals jfiwoaj faoisj faoijioawfjoaj fawufhwaisnfka ksjdljashdjksadhkajs askjlakjhkj, dksadl;asd,. 
+adsomethinaboutgrahamcrackersaksfh wa hawjfajitoshals jfiwoahthatscoolj faolimoisj faoinolisakenjioawfjoaj fawukinukisukilukifhwaisnfka ksjdljashanddashandclashdjksadhkajs askjlakinginslackingjhkj, dksaddeningl;asd,. 
 
-holy noli on a stick, you may JUST BE RIGHT????? MAYBE??? Idk.
+hooly nooli oon aa stickynote, you maybe JUST mayBE RIGHT????? MAYbeBE??? Idek.
 
-Now its MY turn to make an example about an example, regarding an example of an example.
+Noliw itsa MYa turntutu toto makimaki anne exampleful abouting anno exampleful, regardfuling another exampleing offer anothernother exampler.
