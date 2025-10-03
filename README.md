@@ -1,16 +1,6 @@
 # merge-conflict-example-2
-I guess you REALLY could NOT say this really was, a conflict, STUPIDLY merged. Its quite the contrary, but one can certainly try. GDSKJHGLDAJFIOASJFOQWJFGOKS:DGJK:OSHGIUEAND
-SGDUSJGKLS:DNG:AKGMe
+I suppose you REALLY could NOT SAYETH THAT THIS THIS  The this really was, a possiflicict, STUPIDLY emerged. 
 
-but, WHAT IF YOU consider the following, what if this merging, was possibly duplicated? The thought is.. terrifying, even i can't believe it..
-AFDJSDLGSDGJWUAROFJAD
-JGDLSGSDG
+but, WHAT IF YOU coWHAT ARE YOU TALKING ABOUT??? Merging the conflict?!.
 
-What if instead of conflicting the merging we instead duplicated the conflict? WHO KNOWS!!! I DONT!!!
-AGSDG
-DS
-GSD
-GSD
-G
-SGDSDG
-
+What if instead of conflicting thf THe mERging CATEcated the conflict? WHO KNOWS!!! I DONT!!!
