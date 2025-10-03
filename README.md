@@ -1,6 +1,6 @@
 # merge-conflict-example-2
-I guess you could say this really was, a conflict, indeedly merged.
+adhsjafjaksfh wa hawjfhals jfiwoaj faoisj faoijioawfjoaj fawufhwaisnfka ksjdljashdjksadhkajs askjlakjhkj, dksadl;asd,. 
 
-but, consider the following, what if this conflict, was duplicated?
+holy noli on a stick, you may JUST BE RIGHT????? MAYBE??? Idk.
 
-What if instead of merging the conflicts we instead conflicted the merging?
+Now its MY turn to make an example about an example, regarding an example of an example.
