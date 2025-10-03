@@ -1,6 +1,6 @@
 # merge-conflict-example-2
-I suppose you REALLY could NOT SAYETH THAT THIS THIS  The this really was, a possiflicict, STUPIDLY emerged. 
+adhsjafjaksfh wa hawjfhals jfiwoaj faoisj faoijioawfjoaj fawufhwaisnfka ksjdljashdjksadhkajs askjlakjhkj, dksadl;asd,. 
 
-but, WHAT IF YOU coWHAT ARE YOU TALKING ABOUT??? Merging the conflict?!.
+holy noli on a stick, you may JUST BE RIGHT????? MAYBE??? Idk.
 
-What if instead of conflicting thf THe mERging CATEcated the conflict? WHO KNOWS!!! I DONT!!!
+Now its MY turn to make an example about an example, regarding an example of an example.
